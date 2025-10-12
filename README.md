@@ -24,8 +24,8 @@
 ---
 
 ### Me chama aí
-📧 pereiralucas.021209@gmail.com
-💼 @lksz.n
+💼 pereiralucas.021209@gmail.com
+📧 @lksz.n
 
 ---
 
